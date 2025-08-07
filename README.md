@@ -8,4 +8,5 @@ My day one in GNDEC begins on 30 july. All the students reached college at 8:30a
 Day2(1 August,2025)
 My day2 at GNDEC started by arriving at aollege. All the students were gathered in auditorium. There was a lecture on 'universal human values' by Dr. Priya Darshni Madam. She was very passionate in delivering her message.Her lecture was very useful and guided the students to right path.
 Day3(4 August,2025)
-The third day GNDEC starts with lecture of Causmic club.Members of causmic club told us about many times hings of college. Generally causmic organises program. This induction program is also organised by causic club members. Then the second lecture started at 9:30am
+The third day GNDEC starts with lecture of Causmic club.Members of causmic club told us about many times hings of college. Generally causmic organises program. This induction program is also organised by causic club members. Then the second lecture started at 9:30am by Dr.Randhir singh. He told us about all the club activities of GNDEC.Then at 10:30am second session of 'universal human values'
+by Dr. priya Darshni begins.After that there was one hour break.After break at 1:30pm there was oir first lecture of physics class. The class was taken by Prof. Amarjot kaur. She told us abut syllabus and scheme of exams . Then after that there was P2P lecture which was taken by our seniors.
