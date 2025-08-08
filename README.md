@@ -5,15 +5,15 @@ CE
 7986166693
 # Day1(30 july 2025)
 My day one in GNDEC begins on 30 july. All the students reached college at 8:30am and first we arrived to gurudwara sahib for the kirtan. After the kirtan, everyone had tea and snacks and then we headed to auditorium for induction program. The NCC cadets were maintaining descipline in the auditorium. The induction program begins with Principal sir's speec. The speech given by him was very motivational. And then the HOD of applied science Harpreet Mam gave a strong speech on career.Then Chief guest gave the speech . He told us about the origin and foundation of GNDEC and his speech left lasting effect on the students. After that the students were taken to visit their departments.After the department vist our first day of college ended.
-Day2(1 August,2025)
+# Day2(1 August,2025)
 My day2 at GNDEC started by arriving at aollege. All the students were gathered in auditorium. There was a lecture on 'universal human values' by Dr. Priya Darshni Madam. She was very passionate in delivering her message.Her lecture was very useful and guided the students to right path.
-Day3(4 August,2025)
+# Day3(4 August,2025)
 The third day GNDEC starts with lecture of Causmic club.Members of causmic club told us about many times hings of college. Generally causmic organises program. This induction program is also organised by causic club members. Then the second lecture started at 9:30am by Dr.Randhir singh. He told us about all the club activities of GNDEC.Then at 10:30am second session of 'universal human values'
 by Dr. priya Darshni begins.After that there was one hour break.After break at 1:30pm there was oir first lecture of physics class. The class was taken by Prof. Amarjot kaur. She told us abut syllabus and scheme of exams . Then after that there was P2P lecture which was taken by our seniors.The teached us some codes and that was our last lecture.
-Day4(5 August,2025)
+# Day4(5 August,2025)
 Day4 at GNDEC started with Mr. Gautam Murria on the topic of 'Motor Sports' at 1:30pm. He told us about the motor sports and that all the branches of B.tech are connected with it. After that at 2:30pm Dr. Amit kamrastarted his lecture . After that there was a lecture on 'Millets super food'
 by Mr. Shaffy Makkar. She told us about millets and their advantages.Through this lecture we came to know that millets are full of nutrients and protein and different types of millets are beneficial for different organs of our body.This was our last lecture of day 4 at GNDEC.
-Day5(6August,2025)
+# Day5(6August,2025)
 Day5 at GNDEC starts with the first lecture of Dr.Parminder singh at 9:00am. He told us all the programs, clubs ad activities of the college and encouraged us to join the activities. After that at 10:00am Mr. Manpreet Singh started his lecture on the topic 'Fitness for Engineers'. He is a professional bodybuilder coach. He told us about the importance of fitness and exercise in our life and taught us right way of doing exercises. After there was another lecture by Brigadier P.S Cheema sir.He encouraged us to join armed forces and after that there was break . After the break there was our English lecture and the P2P lecture was our last lecture of the day.
-Day6(7August,2025)
+# Day6(7August,2025)
 Day6 at GNDECstarted with maths lecture by Prof. Sukhminder singh . He told us about dome softwares ehich are very helpful in understand 2 dimensional and 3 dimensional graphs . Second lecture started with physics lecture by Prof. Amarjot Kaur . She started teaching us Laser . After physics ther was a lecture in auditorium by Dr. Lakhvir singh Khana . He motivated us to join club activities of the college.After that there was another lecture by Dr. Jasvir Singh Grewal incharge of 'NSS' club. He told us about the main motive of NSS club is to help others and motivated us to come forward to join NSS club to help other . That wa our last lecture of day 6 at GNDEC.
